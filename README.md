@@ -3,6 +3,10 @@
 
 [https://cn.av101.xyz](https://cn.av101.xyz)
 
+[https://cn.aa101.cc](https://cn.aa101.cc)
+
+[https://cn.aa101.info](https://cn.aa101.info)
+
 [https://cn.ax101.ws](https://cn.ax101.ws)
 
 [https://cn.av101.me](https://cn.av101.me)
