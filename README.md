@@ -1,6 +1,10 @@
 # AVHD101 最新地址
 请选择最新地址
 
+[https://cn.aw101.me](https://cn.aw101.me)
+
+[https://cn.aq101.xyz](https://cn.aq101.xyz)
+
 [https://cn.aa101.cc](https://cn.aa101.cc)
 
 [https://cn.aw101.cc](https://cn.aw101.cc)
@@ -21,7 +25,7 @@
 
 二維碼
 
-[<img src="https://i.imgur.com/mpk0cmh.jpg">](https://i.imgur.com/mpk0cmh.jpg)
+[<img src="https://imgur.com/vruEZ4D">](https://imgur.com/vruEZ4D)
 
 
 国产浏览器(如 UC、360、QQ、百度) 不定期可能会屏蔽网站，建议使用谷歌浏览器观看 
