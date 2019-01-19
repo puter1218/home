@@ -16,7 +16,7 @@
 
 地址1: [https://github.com/avhd101/home](https://github.com/avhd101/home)
 
-地址2: [https://101fix.cc](https://101fix.cc)
+地址2: [https://mofangnews.com](https://mofangnews.com)
 
 海外永久地址(需翻墙)
 
