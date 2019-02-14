@@ -9,8 +9,6 @@
 
 [https://cn.aw101.cc](https://cn.aw101.cc)
 
-[https://cn.aa101.info](https://cn.aa101.info)
-
 
 永久地址发布站
 
