@@ -21,7 +21,7 @@
 
 二維碼
 
-[<img src="https://i.imgur.com/vruEZ4D.jpg">](https://i.imgur.com/vruEZ4D.jpg)
+[<img src="https://i.imgur.com/BRxjUmO.png">](https://i.imgur.com/BRxjUmO.png)
 
 
 国产浏览器(如 UC、360、QQ、百度) 不定期可能会屏蔽网站，建议使用谷歌浏览器观看 
