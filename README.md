@@ -1,8 +1,6 @@
 # AVHD101 最新地址
 请选择最新地址
 
-[https://cn.aw101.me](https://cn.aw101.me)
-
 [https://cn.aw101.info](https://cn.aw101.info)
 
 [https://cn.av101.club](https://cn.av101.club)
