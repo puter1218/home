@@ -3,7 +3,7 @@
 
 [https://cn.aw101.info](https://cn.aw101.info)
 
-[https://cn.av101.club](https://cn.av101.club)
+[https://cn.aw101.xyz](https://cn.aw101.xyz)
 
 
 永久地址发布站
