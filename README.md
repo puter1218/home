@@ -19,7 +19,7 @@
 
 二維碼
 
-[<img src="https://i.imgur.com/BRxjUmO.png">](https://i.imgur.com/BRxjUmO.png)
+[<img src="https://github.com/avhd101/home/blob/master/qr.png">](https://github.com/avhd101/home/blob/master/qr.png)
 
 
 国产浏览器(如 UC、360、QQ、百度) 不定期可能会屏蔽网站，建议使用谷歌浏览器观看 
